@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... FPS
 - 🌱 I’m currently learning ... Russian and Ukrainian
 - 💞️ I’m looking to collaborate on ... (N/A)
-- 📫 How to reach me ... Twitter-@Yanbin5927
+- 📫 How to reach me ... Twitter-@Lekvwa
 
 <!---
 Lekvwa/Lekvwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
