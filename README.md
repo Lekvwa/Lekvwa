@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... FPS and Rail Transits
 - 🌱 I’m currently learning ... Ukrainian and Cantonese
 - 💞️ I’m looking to collaborate on ... (N/A)
-- 📫 How to reach me ... Twitter-@Lekvwa
+- 📫 How to reach me ... Threads-@lekvwachan or Twitter-@Lekvwa (not recommended)
 
 <!---
 Lekvwa/Lekvwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
