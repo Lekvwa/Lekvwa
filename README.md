@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lekvwa
-- 👀 I’m interested in ... FPS
-- 🌱 I’m currently learning ... Russian and Ukrainian
+- 👀 I’m interested in ... FPS and Rail Transits
+- 🌱 I’m currently learning ... Ukrainian and Cantonese
 - 💞️ I’m looking to collaborate on ... (N/A)
 - 📫 How to reach me ... Twitter-@Lekvwa
 
